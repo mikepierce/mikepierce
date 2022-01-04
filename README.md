@@ -1,1 +1,1 @@
-PhD Candidate ⋄ Math Instructor ⋄ Linux Nerd ⋄ Amateur Outdoorsman ⋄ Tangping
+PhD Candidate ⋄ Math Instructor ⋄ Linux Nerd ⋄ Amateur Skater ⋄ Tangping
