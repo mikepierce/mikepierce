@@ -1,1 +1,1 @@
-PhD Candidate ⋄ Math Instructor ⋄ Linux Nerd ⋄ Typography Enthusiast ⋄ Tangping
+Math Instructor ⋄ Linux Nerd ⋄ Typography Enthusiast ⋄ Tangping
