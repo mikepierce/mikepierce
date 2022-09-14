@@ -1,1 +1,1 @@
-Mathematician ⋄ University Instructor ⋄ Linux Nerd ⋄ Typography Buff ⋄ Tanging
+Mathematician ⋄ University Instructor ⋄ Linux Nerd ⋄ Typography Buff ⋄ Tangping
